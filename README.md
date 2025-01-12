@@ -3,7 +3,7 @@ I recently graduated with a BSc in Computer Science, specializing in Artificial 
 
 - 🔭 I’m currently exploring the fields of artificial intelligence and IT service management, combining technical support with advanced AI development.
 - 💬 Brainstorm with me about tech, algorithms, career growth, and innovative projects!
-- 📫 How to reach me: sejalpatil108@gmail.com
+- 📫 How to reach me: sejalpatil024@gmail.com
 - 😄 Pronouns: She/Her/Hers
 - ⚡ Fun fact: I enjoy solving complex tech challenges and love to share my knowledge in AI and IT service management.
 
